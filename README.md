@@ -1,0 +1,1 @@
+hi myself jerish i am from nagercoil, kanniyakumari district studied till hsc with ponjesly public matric hr sec school nagercoil and for my bachelor degree i have joined srm institue of science and technology kattankulatur for the degree of BCA-Computer applications and i have passed out my degree with srm by the month of may-2026
